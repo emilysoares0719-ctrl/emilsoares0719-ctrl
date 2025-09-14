@@ -14,8 +14,6 @@ Aprendizados que fazem parte da minha jornada na tecnologia
 
 📫 Onde me encontrar:
 
-LinkedIn
-
-E-mail
+[LinkedIn](https://www.linkedin.com/in/emily-soares-370733224)
 
 ✨ Sempre aberta a conexões, trocas de conhecimento e novos desafios!
